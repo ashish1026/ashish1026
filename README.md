@@ -58,4 +58,4 @@ Have something cool to share? Connect with me on \
 
 
 
-Also, thanks for being one of the ![VisitorCount](https://profile-counter.glitch.me/kpriyanshi02/count.svg) people to checkout my profile :heart:
+Also, thanks for being one of the ![VisitorCount](https://profile-counter.glitch.me/ashish1026/count.svg) people to checkout my profile :heart:
